@@ -14,16 +14,19 @@ Work-related stuff:
 <br>
 <hr>
 <br>
-Curiosities about me:
+Useless trivia about me:
 <br>
 <br>
 -I am 16 years old;
 <br>
 <br>
--I am a newly hatched trans girl, and also a lesbian <3;
+-I am a trans girl, and also a lesbian <3;
 <br>
 <br>
--I am a guitarist, and love to play videogames;
+-I am a guitarist;
+<br>
+<br>
+-I love to play videogames;
 <br>
 <br>
 -I am Brazilian, born and raised in Limeira - SP;
