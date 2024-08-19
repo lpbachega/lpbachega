@@ -1,7 +1,7 @@
 Hi, everyone visiting my profile! Want to know a little bit about me?
 <br>
 <br>
-First of all, let me introduce myself: my name is Amanda(she/her pronouns), and I am an amateur dev and high school student.
+First of all, let me introduce myself: my name is Amanda(she/her), and I am an amateur dev and high school student.
 <hr>
 <br>
 Work-related stuff:
